@@ -16,7 +16,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/faizzkhann/](https://www.linkedin.com/in/faizzkhann/)
 
-- ⚡ Fun fact **i am bit emotional type of person**
+- ⚡ Social Handles https://linktr.ee/faixz
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
